@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Lee-Chithao
-- 👀 I’m an interdisciplinary designer.
+- 👀 An interdisciplinary designer.
 - 🔗 leechithao.com
